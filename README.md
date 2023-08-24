@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shamas98. 
-- 👀 I’m talk about Digital Marketing, Inclusive Marketing, Content Creation, Paid ads and Entrepreneurship.
+- 👀 I talk about Digital Marketing, Inclusive Marketing, Content Creation, Paid ads and Entrepreneurship.
 - 🌱 I’m currently learning alot of different techniques to enhance digital presence for my clients to make sure that they're able to achieve they're marketing objectives efficiently and effectively. 
 - 💞️ I’m looking to collaborate on different projects related to my field.
 - 📫 You can reach me through my email: shamasnadeem67@gmail.com.
